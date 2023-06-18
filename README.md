@@ -1,0 +1,2 @@
+# DICKY
+QUIERO JUGAR 
